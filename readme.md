@@ -4,7 +4,7 @@
 
   ⠀  ⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀      ⠀            ⠀  ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀    [ℐ](https://lol)  ⠀ ✚ 　⠀┄┄　　[atabook](https://flamereaver.atabook.org)　 ﾉ　[rentry](https://rentry.co/16ji)　　 𐄈
 
-  ⠀  ⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀      ⠀            ⠀  ⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀    𝄢⠀  ⠀ [fict](https://virtualyoutuber.fandom.com/wiki/Kanae)[kin](https://projectsekai.fandom.com/wiki/Shinonome_Ena)⠀ ⠀ 𓋫⠀ ⠀ color  my ⠀[tree](https://colormytree.me/2025/01KBA6W4BW5BA4MBKGV6MP6HG6)𓈒⠀     🔫
+  ⠀  ⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀      ⠀            ⠀  ⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀    𝄢⠀  ⠀ [fict](https://virtualyoutuber.fandom.com/wiki/Kanae)[kin](https://projectsekai.fandom.com/wiki/Shinonome_Ena)⠀ ⠀ 𓋫⠀ ⠀ color  my ⠀[tree](https://colormytree.me/2025/01KBA6W4BW5BA4MBKGV6MP6HG6)𓈒⠀ ⠀  🔫
 
 
 ⠀  ⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀  ⠀⠀ ⠀
